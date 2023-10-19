@@ -1,1 +1,1 @@
-This is belons to my all projects
+This is belongs to my all projects
